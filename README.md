@@ -1,2 +1,2 @@
 # https-tiranran.github.io
-Tugas Kelompok Assadiah Athirah B48 &amp; M. Donny Pratama F13
+Tugas Kelompok Assadiah Athirah F13 &amp; M. Donny Pratama F13
